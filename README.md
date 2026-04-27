@@ -1,0 +1,2 @@
+# pineapplzz-codezz
+about me
